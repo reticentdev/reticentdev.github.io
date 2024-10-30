@@ -40,6 +40,12 @@ title: "Jesus Teaches Us to Pray 🙏"
     }
   </style>
 </head>
+<audio controls>
+    <source src="https://raw.githubusercontent.com/reticentdev/reticentdev.github.io/main/lauds.mp3" type="audio/mpeg">
+    Your browser does not support the audio element.
+</audio>
+
+You can also [click here to listen to the lauds](https://raw.githubusercontent.com/reticentdev/reticentdev.github.io/main/lauds.mp3).
 
 # Jesus Teaches Us to Pray 🙏
 

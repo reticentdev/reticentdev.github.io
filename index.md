@@ -66,6 +66,10 @@ Even though we were made to pray, it can still be tough.  It doesn't always come
 
 🙌  Have faith and trust in the power of prayer!
 
+> When [Jesus] entered Capernaum, a centurion approached him and appealed to him, saying, “Lord, my servant is lying at home paralyzed, suffering dreadfully.” He said to him, “I will come and cure him.” The centurion said in reply, “Lord, I am not worthy to have you enter under my roof; only say the word and my servant will be healed.
+>
+> When Jesus heard this, he was amazed and said to those following him, “Amen, I say to you, in no one in Israel have I found such faith. And Jesus said to the centurion, “You may go; as you have believed, let it be done for you.” And at that very hour [his] servant was healed.
+
 Prayer is a conversation with God. 🗣️ It takes time and practice to build that relationship.  Just like with your friends, the more you talk to God, the closer you'll become. 😊
 
 All that practice really does pay off. Prayer is always worth the time and effort we put into it. It is worth persevering through the hard parts. Part of that perseverance, though, is humility. In prayer, we approach God Himself, opening our hearts to Him.  We have to realize our own lack of power and accept it. We have to take on the character of little children petitioning their father and not let pride or our own weaknesses get in the way of going to Him, opening our hearts to Him, and receiving the graces He offers us.

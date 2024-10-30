@@ -63,6 +63,7 @@ Even though we were made to pray, it can still be tough.  It doesn't always come
 
 * **Believe in the power of prayer:**
 > Just as Jesus prays to the Father... so He teaches us filial boldness: “Whatever you ask in prayer, believe that you receive it, and you will.” Such is the power of prayer and of faith that does not doubt: “all things are possible to him who believes.” Jesus is as saddened by the “lack of faith” of his own neighbors and the “little faith” of his own disciples as he is struck with admiration at the great faith of the Roman centurion and the Canaanite woman. (CCC 2610)
+
 🙌  Have faith and trust in the power of prayer!
 
 Prayer is a conversation with God. 🗣️ It takes time and practice to build that relationship.  Just like with your friends, the more you talk to God, the closer you'll become. 😊
